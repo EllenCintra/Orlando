@@ -31,6 +31,7 @@ II. ROTEIRO DE COMPRAS E RESTAURANTES (ROTA OTIMIZADA)
 
 A estratégia de ter um Plano B na ponta da língua é o que garante um dia de parque bem-sucedido.
 Abaixo está o seu roteiro completo, com horários, fluxo otimizado (Plano A) e a alternativa de ataque (Plano B) caso a fila inicial esteja acima de 60 minutos.
+
 📅 ROTEIRO DE ATAQUE FINAL: HORÁRIOS, PLANO A E PLANO B
 1. Magic Kingdom (12/11)
 | Horário Sugerido | Área / Atividade | Plano A (Prioridade) | Plano B (Fila > 60 min) | Dica/Observação IMPERDÍVEL |
